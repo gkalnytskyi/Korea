@@ -16,7 +16,7 @@
 5. [Корея - 10. Война как война - 4](http://alexandrov-g.livejournal.com/287281.html)
 6. [Корея - 11. Война как война - 5](http://alexandrov-g.livejournal.com/287798.html)
 
-# После войны
+## После войны
 1. [Корея - 12. Корея как две Кореи](http://alexandrov-g.livejournal.com/288007.html)
 2. [Корея - 13. Начало пути или Корея как КНДР](http://alexandrov-g.livejournal.com/288377.html)
 3. [Корея - 14. Путь вверх и путь вниз](http://alexandrov-g.livejournal.com/288874.html)
